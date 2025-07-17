@@ -1,1 +1,0 @@
-# corazon_info_taller6sw7q
